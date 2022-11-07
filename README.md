@@ -1,8 +1,8 @@
 ### Seja bem vindo ao meu Perfil! ❤️
 
-- Desenvolvedora de software ☺️
+- Desenvolvedora de software e e Quality Assurance (QA)
 - Acadêmica De Ciência da Computação 
-- Ex-Aluna do @minasprogramam
+- 
 
 
 <div>
